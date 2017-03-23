@@ -1,1 +1,1 @@
-# Arquitectura-Gr1
+# Richard Murillo
